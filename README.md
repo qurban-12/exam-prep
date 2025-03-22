@@ -1,4 +1,4 @@
 # exam-prep
 It is practice time.
 <br>
-pratactionar - Qurbu
+pratactionar - Qurbu(cs student)
